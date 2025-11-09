@@ -1,2 +1,0 @@
-# PEMOGRAMAN-MOBILE
--
